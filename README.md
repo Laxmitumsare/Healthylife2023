@@ -1,1 +1,1 @@
-This is project to help old pople.
+This is project to help old people.
